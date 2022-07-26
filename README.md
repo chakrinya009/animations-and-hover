@@ -1,3 +1,3 @@
 # animations
 
-![alt text](https://giphy.com/embed/U8iiB9GBdt5t9n1I6J.gif)
+![alt text](https://media0.giphy.com/media/J3o5q929sOIzGC80bi/giphy.gif)
