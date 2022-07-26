@@ -1,3 +1,3 @@
 # animations
 
-![alt text](https://giphy.com/gifs/miron-miron-logo-hklv9aNS7Gcda.gif)
+![alt text](https://giphy.com/embed/U8iiB9GBdt5t9n1I6J.gif)
